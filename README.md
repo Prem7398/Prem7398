@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Prem7398
-- 👀 I’m interested in ...Coding , Programming 
+- 👀 I’m interested in Coding , Programming 
 - 🌱 I’m currently learning ... 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Ghomstt on telegram
